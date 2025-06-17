@@ -12,8 +12,7 @@ We specialize in:
 ---
 
 🌍 Visit our official website: [https://benkstudio.com](https://benkstudio.com)
-
-📫 Contact: benkstudio.team@gmail.com  
+📫 Contact: thientm.denk@gmail.com  
 🐉 Powered by passion and pixel dust.
 
 ---
